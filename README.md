@@ -9,7 +9,11 @@ c+h always ok, encouraged . taken  <img src="https://files.catbox.moe/op8vd8.gif
   
 i'm not interested in discourse, iwcare i block freely
 
-preferrably dni if you're -16, dont copy/inspo my skins 
+<div align="center"> 
+  
+preferrably dni if you're -16, dont copy/inspo my skins
+
+plural kit [front](https://pluralkit.xyz/f/agath) is now updated!
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=0nk1o2tsvbauip97qhw6gdab7&redirect=true">
