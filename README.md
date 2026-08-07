@@ -16,7 +16,7 @@ preferrably dni if you're -16, dont copy/inspo my skins
 plural kit [front](https://pluralkit.xyz/f/agath) is now updated!
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=0nk1o2tsvbauip97qhw6gdab7&redirect=true">
+  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=0nk1o2tsvbauip97qhw6gdab7&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=97abc8&bar_color_cover=false">
   </a>
 </p>
