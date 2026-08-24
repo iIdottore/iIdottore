@@ -2,7 +2,7 @@
 
   ![](https://komarev.com/ghpvc/?username=iidottore&color=BCC2E2&style=plastic&label=𓉸ྀི&base=1000)
 <br/><div align="center">
-  <img src="https://file.garden/aoq_Iog6Lzu4T9_5/NewProject47F10DD4-ezgif.com-optimize.gif">
+  <img src="https://file.garden/ai_8yc5HBxh54hWI/rabies.gif">
 
 <div align="center">
 c+h always ok, encouraged . taken  <img src="https://files.catbox.moe/op8vd8.gif">  13.09.24
