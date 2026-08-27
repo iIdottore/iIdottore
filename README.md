@@ -1,8 +1,9 @@
 <div align="center">
 
   ![](https://komarev.com/ghpvc/?username=iidottore&color=BCC2E2&style=plastic&label=𓉸ྀི&base=1000)
-
-  ![](https://files.catbox.moe/i1g94a.GIF)
+  
+<div align="center">
+ <img src="https://files.catbox.moe/i1g94a.gif">
 
 <div align="center">
 c+h always ok, encouraged . taken  <img src="https://files.catbox.moe/op8vd8.gif">  13.09.24
